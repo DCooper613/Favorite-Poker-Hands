@@ -14,3 +14,9 @@ Spades are my favorite suit with playing cards and a Royal Flush is the best han
 Coming in second we have the diamonds making an appearance. They're pretty but can also cut deep if you're not careful
 
 ![image](https://user-images.githubusercontent.com/80117777/110667815-a0ef9500-8198-11eb-9fc5-a8b2d44dffb5.png)
+
+3) Four of a Kind - Aces
+
+Four bad bitches when assembled, its a great feeling seeing these on the board when you're holding pocket rockets
+
+![image](https://user-images.githubusercontent.com/80117777/110669072-f7a99e80-8199-11eb-9622-aa0eb38423be.png)

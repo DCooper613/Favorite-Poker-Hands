@@ -19,4 +19,4 @@ Coming in second we have the diamonds making an appearance. They're pretty but c
 
 Four bad bitches when assembled, its a great feeling seeing these on the board when you're holding pocket rockets
 
-![image](https://user-images.githubusercontent.com/80117777/110669072-f7a99e80-8199-11eb-9622-aa0eb38423be.png)
+![image](https://user-images.githubusercontent.com/80117777/110669601-7b638b00-819a-11eb-8eb4-ae821e893564.png)
